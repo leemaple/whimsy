@@ -1,2 +1,2 @@
 # whimsy
-whimsies in daily life
+whimsies in daily life！
